@@ -16,7 +16,7 @@ paginate_path: /blog/page:num/
 twitter: "#"
 linkedin: "#"
 stackoverflow: "#"
-github: "#"
+github: "https://github.com/ghazyayman"
 researchgate: "#"
 orcid: "#"
 quora: "#"
