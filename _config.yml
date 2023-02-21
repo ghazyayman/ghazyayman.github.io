@@ -1,11 +1,11 @@
 ### your site title here
 
-title: Your Name
-description: subtitle | affiliations | motto
+title: Muhammad Ghazy
+description: VAPT R&D | CS Student | MMNTO MORI
 
-baseurl: /gradfolio #name of GitHub repository
-url: "" #custom url to be used instead of GitHub repository
-email: #
+baseurl: "/" #name of GitHub repository
+url: "https://ghazyayman.github.io" #custom url to be used instead of GitHub repository
+email: muhghazyayman@gmail.com
 
 # Pagination
 paginate: 4
