@@ -5,7 +5,7 @@ description: VAPT R&D | MMT M0r1
 
 baseurl: "/gradfolio" #name of GitHub repository
 url: "https://ghazyayman.github.io" #custom url to be used instead of GitHub repository
-email: #
+email: muhghazyayman@gmail.com
 
 # Pagination
 paginate: 4
@@ -15,16 +15,16 @@ paginate_path: /blog/page:num/
 # Social media links in footer
 # twitter: "#"
 linkedin: "#"
-stackoverflow: "#"
+# stackoverflow: "#"
 github: "ghazyayman"
 # researchgate: "#"
 # orcid: "#"
 # quora: "#"
-instagram: "#"
+instagram: "muhghazi_"
 # facebook: "#"
 
 
-# Markdown
+# Markdownq
 highlighter: rouge
 markdown: kramdown
 
