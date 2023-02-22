@@ -15,4 +15,4 @@ I am a master of deception, a whisper in the digital wind. But when the forces o
 
 So tread carefully, traveler, for the secrets I protect are not for the faint of heart. But know that in my hands, your digital safety is assured, and your secrets will remain forever hidden from prying eyes.  
 
-PS: Just look at my project eh? and ask me anytime.
+PS: Just look at my project eh? Ask me anytime.
