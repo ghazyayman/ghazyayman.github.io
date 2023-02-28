@@ -13,6 +13,8 @@ Welcome, traveler. I am Muhammad Ghazy the enigmatic security developer, a maste
 
 My identity remains shrouded in secrecy, my presence felt only through the impenetrable walls of the security systems I have crafted. I move in the shadows, my fingers deftly tapping away at the keyboard as I weave complex webs of encryption and fortify impenetrable firewalls.
 
+[![GitHub Streak](https://streak-stats.demolab.com/?user=ghazyayman&theme=vue-dark)](https://git.io/streak-stats)
+
 I am a master of deception, a whisper in the digital wind. But when the forces of darkness come knocking, I am the silent sentinel that rises to meet them, striking with precision and unforgiving force.
 
 So tread carefully, traveler, for the secrets I protect are not for the faint of heart. But know that in my hands, your digital safety is assured, and your secrets will remain forever hidden from prying eyes.  
