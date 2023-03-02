@@ -1,3 +1,11 @@
+The easy way is to use Bundler to set up and run Jekyll locally. For this, you will need Ruby and Bundler installed for your platform.
+
+After cloning the repo or downloading the source files, open a terminal inside the source folder and run:
+
+    bundle install to install Jekyll and required plugins
+    bundle exec jekyll serve --incremental --trace
+
+
 <!-- 
 ---
 layout: about

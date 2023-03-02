@@ -9,14 +9,14 @@ published: true
 
 <a href="https://wakatime.com/@3709c26d-13c9-45c0-b36b-f98e7b4179f1"><img src="https://wakatime.com/badge/user/3709c26d-13c9-45c0-b36b-f98e7b4179f1.svg" alt="Total time coded since Oct 21 2022" /></a>
 
-Welcome, traveler. I am Muhammad Ghazy the enigmatic security developer, a master of the dark arts of digital protection. With a keen mind honed through years of cryptic coding and clandestine networking, I am the shield that guards against the insidious threats lurking in the shadows of the internet.
+I'm Muhammad Ghazy, an apprentice security engineer. I learn <u>most</u> stuff by self-learning and try not to break things. I create and automate code based from open-source project, also giving back to the community. Now i'm more focused on <a href="https://www.softwaretestinghelp.com/getting-started-with-web-application-penetration-testing/"><em>Web App</em></a> and <a href="https://www.cisco.com/c/en/us/solutions/automation/network-automation.html"><em>Network Automation</em></a> stuff. 
 
-My identity remains shrouded in secrecy, my presence felt only through the impenetrable walls of the security systems I have crafted. I move in the shadows, my fingers deftly tapping away at the keyboard as I weave complex webs of encryption and fortify impenetrable firewalls.
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ghazyayman&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
+
+I keep my heads straight up to my mission. Keep grinding cuz it's all about <strong>timing</strong>, at the same time i'm open to every opportunity and learn new things. Hit me up if you want to work together.      
 
 [![GitHub Streak](https://streak-stats.demolab.com/?user=ghazyayman&theme=vue-dark)](https://git.io/streak-stats)
 
-I am a master of deception, a whisper in the digital wind. But when the forces of darkness come knocking, I am the silent sentinel that rises to meet them, striking with precision and unforgiving force.
-
-So tread carefully, traveler, for the secrets I protect are not for the faint of heart. But know that in my hands, your digital safety is assured, and your secrets will remain forever hidden from prying eyes.  
+I remember a quote from Nietzche that said <i>"He who has a why to live can bear almost any how."</i> Find your why, work towards your goals and purposes. At the end of the day, I'm just a man and his will to survive *insert Rocky theme
 
 PS: Just look at my project eh? Ask me anytime.
