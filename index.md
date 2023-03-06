@@ -14,7 +14,6 @@ I'm Muhammad Ghazy, an apprentice security engineer. I learn <u>most</u> stuff b
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ghazyayman&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
 
 I keep my head straight up to my mission. Keep grinding because it’s all about <strong>timing</strong>, at the same time I’m open to every opportunity and learning new things. I recently learned about business and marketing and also read some books about how money works. You can read the summary <a href="https://ghazyayman.github.io/blog/">here</a>. Hit me up if you want to work together.
-
      
 
 [![GitHub Streak](https://streak-stats.demolab.com/?user=ghazyayman&theme=vue-dark)](https://git.io/streak-stats)

@@ -24,7 +24,7 @@ Prospecting methods:
 2. Email
 3. Cold calling
 4. Networking
-5.Referral
+5. Referral
 6. Knocking on doors
 7. Following up on leads
 8. Attend trade shows
