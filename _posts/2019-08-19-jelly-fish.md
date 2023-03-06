@@ -7,6 +7,7 @@ The Millionaire Fastlane is a book written by MJ DeMarco that offers a roadmap f
 
 This is a summary for every chapter.
 
+PART 1
 Chapter 1 :
 1. “Get Rich Slow” demands a long life of gainful employment.
 2. “Get Rich Slow” is a losing game because it is codependent on Wall Street an anchored by your time.
@@ -17,6 +18,7 @@ Chapter 2 :
 2. Fast wealth is created exponentially, not linearly.
 3. Change can happen in an instant.
 
+PART 2
 Chapter 3 :
 1. Wealth is a formula, not an ingredient.
 2. Process makes millionaires. Events are by-products of process.
@@ -26,6 +28,7 @@ Chapter 4 :
 1. To force change, change must come from your beliefs, and your roadmap outlines those beliefs.
 2. Each roadmap is governed by a wealth equation and predisposed to a financial destination-Sidewalk to poorness, Slowlane to mediocrity, and the Fastlane to wealth.
 
+PART 3
 Chapter 5 :
 1. A first-class ticket to the Sidewalk is to have no financial plan.
 2. The Sidewalk's natural gravitational pull is poorness, both in time and money.
@@ -33,5 +36,58 @@ Chapter 5 :
 4. You can be income rich and still ride the Sidewalk dirty.
 5. If wealth is defined by income and debt, wealth is an illusion, because it is vulnerable to potholes, detours, and “bumps in the road.” When the income disappears, so does the illusion of wealth.
 6. Poor financial management is like gambling; the house eventually wins.
+
+Chapter 6 :
+1. Wealth is authored by strong familial relationships,
+2. fitness and health, and freedom-not by material possessions.
+3. Unaffordable material possessions are destructive to the wealth trinity.
+
+Chapter 7 :
+1. Money doesn't buy happiness because money is used for consumer pursuits destructive to freedom. Anything destructive to freedom is destructive to the wealth trinity.
+2. Money, properly used, can buy freedom, which can lead to happiness.
+3. Happiness stems from good health, freedom, and strong interpersonal relationships, not necessarily money.
+4. Lifestyle Servitude steals freedom, and what steals freedom, steals wealth.
+5. If you think you can afford it, you can't.
+6. The consequence of instant gratification is the destruction of freedom, health, and choice.
+
+Chapter 8 :
+1. Like wealth, luck is created by process, not by event.
+2. Luck is created by increased probabilities that are improved with the process of action.
+3. If you find yourself playing the odds of “big hits,” you are event-driven, not process-driven. This mindset is conducive to the Sidewalk, not the Fastlane.
+4. “Get Rich Quick” infomercial marketing is a Fastlane because savvy marketers know that Sidewalkers place faith in events over process.
+5. Moneymaking “systems” are rarely as profitable as the act of selling them to Sidewalkers.
+
+Chapter 9 :
+1. Hitchhikers assign control over their financial plans to others effectively introducing probabilities to victimhood.
+2. The Law of Victims: You can't be a victim if you don't relinquish power to someone capable of making you a victim.
+3. Responsibility owns your choices.
+4. Taking responsibility is the first step to taking the driver's seat of your life. Accountability is the final.
+
+PART 4
+Chapter 10 :
+1. The Slowlane is a natural course-correction from the Sidewalk evolving from taking responsibility and accountability.
+2. Wealth is best experienced when you're young, vibrant, and able, not in the twilight of your life.
+3. The Slowlane is a plan that takes decades to succeed, often requiring masterful political prowess in a corporate environment. For the Slowlaner, Saturday and Sunday is the paycheck for Monday through Friday.
+4. The default return on your time in the Slowlane is negative 60%-5-for-2.
+5. The 5-for-2 trade inherit in the Slowlane is generally fixed and cannot be manipulated, because job standards are five days a week.
+6. The predisposed destination of the Slowlane is mediocrity. Life isn't great, but it isn't so bad either.
+
+Chapter 11 :
+1. In a job, you sell your freedom (in the form of time) for freedom (in the form of money).
+2. Experience is gained in action. The environment of that action is irrelevant.
+3. Wealth accumulation is thwarted when you don't control your primary income source.
+
+Chapter 12 :
+1. Slowlane wealth is improbable due to Uncontrollable Limited Leverage (ULL).
+2. The first variable in the Slowlane wealth equation evolves from a job that factors to intrinsic value that equates to your nominal value for each unit of your life traded.
+3. Intrinsic value is the value of your time set by the marketplace and is measured in units of time, either hourly or yearly.
+4. In the Slowlane, intrinsic value (regardless of its time measurement) is numerically inhibited because there are only 24 hours in the day (for the hourly worker),and the average lifespan is 74 years (for the salaried worker).
+5. Like the Slowlaner's primary income source (a job), the Slowlaner's wealth acceleration vehicle (compound interest) is also pegged to time.
+6. Like a job, compound interest is mathematically futile and cannot be manipulated. You cannot force-feed the market (or the economy) to give you phenomenal returns, year after year.
+7. Wealth cannot be accelerated when pegged to mathematics based on time.
+8. Time is your primordial fuel and it should not be traded for money.
+9. Your time should not be an expendable resource for wealth because wealth itself is composed of time.
+10. Your mortality makes time mathematically retarded for wealth creation.
+11. If you don't control the variables inherent in your wealth universe, you don't control your financial plan.
 
 [by MJ Demarco](https://www.themillionairefastlane.com/)
