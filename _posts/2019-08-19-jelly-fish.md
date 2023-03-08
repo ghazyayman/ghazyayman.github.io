@@ -90,4 +90,41 @@ Chapter 12 :
 10. Your mortality makes time mathematically retarded for wealth creation.
 11. If you don't control the variables inherent in your wealth universe, you don't control your financial plan.
 
+Chapter 13 :
+1. Slowlaners attempt to manipulate intrinsic value by education.
+2. Indentured time is time you spend earning a living. It is the opposite of free time.
+3. Parasitic debt is debt that creates indentured time and forces work.
+
+Chapter 14 :
+1. Take advice from people with a proven, successful track record of their espoused discipline.
+2. Many money gurus often suffer from a Paradox of Practice; they teach one wealth equation while getting rich in another. They're not rich from their own teachings.
+
+Chapter 15 :
+1. The Slowlane has seven dangers, five of which cannot be controlled.
+2. The risk of “lifestyle” is the one risk Slowlaners will try to control.
+3. The Slowlane is predisposed to mediocrity because its mathematical universe is mediocre.
+4. Slowlaners manipulate the “expense” variable because it is the one thing they can control.
+5. Exponential income growth and expense management creates wealth-not just by curtailing expenses.
+6. You can break the Slowlane equation by exploding your intrinsic value via fame or insider corporate management.
+7. Successful Slowlaners not famous or in corporate management end in the middle . . . middle class and middle age.
+8. Slowlane millionaires are stuck in the middle class.
+9. $5 million is the new $1 million.
+10. A millionaire cannot live a millionaire lifestyle without financial discipline.
+11. Lottery winners fall into the millionaire trap and go broke because they attempt to live a “millionaire” lifestyle, not understanding that a few million doesn't go very far.
+
+PART 5
+Chapter 16:
+1. The risk profile of a Fastlane strategy isn't much different from the Slowlane, but the rewards are far greater.
+2. The Fastlane Roadmap is an alternative financial strategy predicated on Controllable Unlimited Leverage.
+3. The Fastlane roadmap is predisposed to wealth.
+4. The Fastlane Roadmap is capable of generating “Get Rich Quick” results, not to be confused with “Get Rich Easy.”
+
+Chapter 17:
+1. Producers are indigenous to the Fastlane roadmap.
+2. Producers are the minority as are the rich, while consumers are the majority as are the poor.
+3. When you succeed as a producer, you can consume anything you want.
+4. Fastlaners are producers, entrepreneurs, innovators, visionaries, and creators.
+5. A business does not make a Fastlane-some businesses are jobs in disguise.
+6. The Fastlane wealth equation is not bound by time and its variables are unlimited and controllable.
+
 [by MJ Demarco](https://www.themillionairefastlane.com/)
