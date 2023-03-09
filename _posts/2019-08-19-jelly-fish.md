@@ -127,4 +127,13 @@ Chapter 17:
 5. A business does not make a Fastlane-some businesses are jobs in disguise.
 6. The Fastlane wealth equation is not bound by time and its variables are unlimited and controllable.
 
+Chapter 18:
+1. The key to the Fastlane wealth equation is to have a high speed limit, or an unlimited range of values for units sold. This creates leverage. The market for your product or service determines your upper limit.
+2. The higher your speed limit, the higher your income potential.
+3. The primary wealth accelerant for the rich is asset value, defined as appreciable assets created, founded, or bought.
+3. Wealth creation via asset value is accelerated by each industry's average multiplier. For every dollar in net income realized, the asset value multiplies by a factor of the multiple.
+4. Your industry of specialization will determine the average multiple that determines your wealth accelerant factor. If the multiple is 3, your WAF is 300%.
+5. Liquidation events transform appreciated assets (“paper” net worth) into money (“real” net worth) that can be transformed into another passive income stream: a money system.
+
+
 [by MJ Demarco](https://www.themillionairefastlane.com/)
