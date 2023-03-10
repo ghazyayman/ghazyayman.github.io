@@ -166,5 +166,72 @@ Chapter 21:
 5. The Law of Effection's absoluteness comes from direct access and control (you are the athlete) versus indirect access (you are the athlete's agent).
 To make millions you must serve millions in scale or a few in magnitude.
 
+PART 6 
+Chapter 22:
+1. “Pay yourself first” is fundamentally impossible in a job.
+2. To own your vehicle (you), start a corporation that formally divorces you from the act of business. Your corporation is the body of your surrogate.
+3. The recommended Fastlane business entity is a C corp, an S corp, or an LLC.
+
+Chapter 23:
+1. The leading cause of poorness is poor choices.
+2. The steering wheel of your life is your choices.
+3. You are exactly where you chose to be.
+4. Success is hundreds of choices that form process. Process forms lifestyle.
+5. Choice is the most powerful control you have in your life.
+6. Treasonous choices forever impact your life negatively.
+7. Your choices have significant horsepower, or trajectory into the future.
+8. The younger you are, the more potent your choices are and the more horsepower you possess.
+9. Over time, horsepower erodes as the consequences of old choices are thick and hard to bend.
+
+Chapter 24:
+1. Your choices of action manifest from your choices of perception.
+2. What you choose to perceive, or not perceive, will manifest itself to a choice of action, or inaction.
+3. You can change your choice of perception by aligning yourself with those who experience the perception as reality.
+4. Worst Case Consequence Analysis helps avoid treasonous choices.
+5. The Weighted Average Decision Matrix can help you make better big decisions by clarifying alternatives and their internal factors.
+6. The universe has no memory, only you do.
+7. Your past can be accelerative or treasonous. You choose the classification.
+8. If your eyes are transfixed to the past, you can't become the person you need to become in the future.
+
+Chapter 25:
+1. The natural gravity of society is not to be exceptional, but average.
+2. Toxic relationships drain energy and detract from your goals to be extraordinary.
+3. The people in your life are like your comrades in a battle platoon. They can save you, help you, or destroy you.
+4. Good relationships are accelerative to your process, while bad relationships are treasonous.
+
+Chapter 26:
+1. Fastlaners regard time as the king of all assets.
+2. Time is deathly scarce, while money is richly abundant.
+3. Indentured time is time you spend to earn money. Free time is spent as you please.
+4. Your lifespan is made up of both free time and indentured time.
+5. Free time is bought and paid for by indentured time.
+6. Fastlaners seek to transform indentured time into free time.
+7. Parasitic debt eats free time and excretes it as indentured time.
+8. Lifestyle extravagances have two costs: the cost itself and the cost to free time.
+9. Parasitic debt has to be stopped at the source: instant gratification.
+
+Chapter 27:
+1. Fastlaners start their education at graduation, if not before.
+2. A Fastlaner's education serves to advance their business system and their money tree, not to raise intrinsic value.
+3. Fastlaner's aren't interested in being a cog in the wheel. They want to be the wheel.
+4. I don't know how” is an excuse dismantled by discipline.
+5. Infinite knowledge is everywhere and it's free. What's missing is discipline to assimilate it.
+6. You can become an expert in any discipline not requiring physical skills.
+7. Educational recharges can occur within time blocks already allocated for other objectives.
+8. Organizers of expensive seminars take advantage of Sidewalkers and disenfranchised Slowlaners by marketing empty promises as “events.”
+
+Chapter 28:
+1. Interest is first gear. Commitment is the Redline.
+2. Hard work and commitment separates the winners from the losers.
+3. Some choose short-term mediocre comfort over long-term meteoric comfort.
+4. To live unlike everyone else, you have to do what everyone else won't.
+5. Arm your expectations to hard work, sacrifice, and other bumps in the road. These are the land mines where the weak are removed from the road and sent back to the land of “most people.”
+7. Failure is natural to success. Expect it and learn from it.
+8. One home run could set you financially secure for your life, perhaps generations.
+9. Home runs can't be hit in the dug out.
+10. Moronic risks have unlimited downside (long term) and limited upside (short term).
+11. Intelligent risks have unlimited upside (long term) and limited downside (short term.)
+12. There is never perfect timing and waiting for “someday” just wastes time.
+
 
 [by MJ Demarco](https://www.themillionairefastlane.com/)
