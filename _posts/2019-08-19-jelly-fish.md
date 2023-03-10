@@ -135,5 +135,36 @@ Chapter 18:
 4. Your industry of specialization will determine the average multiple that determines your wealth accelerant factor. If the multiple is 3, your WAF is 300%.
 5. Liquidation events transform appreciated assets (“paper” net worth) into money (“real” net worth) that can be transformed into another passive income stream: a money system.
 
+Chapter 19:
+1. To divorce yourself from the Slowlane's transactional relationship of “time for money,” you need to become a producer, specifically, a business owner.
+2. Business systems break the bond between “your time for money” because they act like surrogate operatives for your time trade.
+3. If you have a passive income that exceeds all your needs and lifestyle expenses including taxes, you're retired.
+4. Retirement can happen at any age.
+5. The fruit from a money tree is passive income.
+6. A Fastlane objective is to create a business system that survives time, exclusive of your time.
+7. The 5 money-tree seedlings are rental systems, computer systems, content systems, distribution systems, and human-resource systems.
+8. Real estate, licenses, and patents are examples of rental systems.
+9. Internet and software businesses are examples of computer systems.
+10. Authoring books, blogging, and magazines are forms of content systems.
+11. Franchising, chaining, network marketing, and television marketing are examples of distribution systems.
+12. Human resource systems can add or subtract to passivity.
+
+Chapter 20:
+1. One saved dollar is the seed to a money tree.
+2. A mere 5% interest on $10 million dollars is $40,000 a month in passive income.
+3. A saved dollar is the best passive income instrument.
+4. Fastlaners (the rich) don't use compound interest or the markets to get wealthy but to create income and preserve liquidity.
+5. A saved dollar is a freedom fighter added to your army.
+6. The rich leverage compound interest at its crest, applied against large sums of money.
+7. Fastlaners eventually become net lenders.
+
+Chapter 21:
+1. The Law of Effection states that the more lives you affect or breach, both in scale or magnitude, the richer you will be.
+2. Scale translates to “units sold” of our profit variable within our Fastlane wealth equation. Magnitude translates to “unit profit” of our profit variable within our Fastlane wealth equation.
+3.The Law of Attraction is not a law, but a theory. The Law of Effection is absolute and operates exclusive of a roadmap.
+4. All lineages of self-made wealth trace back to the Law of Effection.
+5. The Law of Effection's absoluteness comes from direct access and control (you are the athlete) versus indirect access (you are the athlete's agent).
+To make millions you must serve millions in scale or a few in magnitude.
+
 
 [by MJ Demarco](https://www.themillionairefastlane.com/)
