@@ -233,5 +233,8 @@ Chapter 28:
 11. Intelligent risks have unlimited upside (long term) and limited downside (short term.)
 12. There is never perfect timing and waiting for “someday” just wastes time.
 
+PART 7
+Chapter 29:
+
 
 [by MJ Demarco](https://www.themillionairefastlane.com/)
