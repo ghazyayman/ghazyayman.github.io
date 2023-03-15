@@ -235,6 +235,64 @@ Chapter 28:
 
 PART 7
 Chapter 29:
+1. Not all businesses are the right road. Few roads move at, through, or near the Law of Effection.
+2. The best roads and the purest Fastlanes satisfy the Five Fastlane Commandments: Need, Entry, Control, Scale, and Time.
+
+Chapter 30:
+1. The Commandment of Need states that businesses that solve needs win. Needs can be pain points, service gaps, unsolved problems, or emotional disconnects.
+2. Ninety percent of all new businesses fail because they are based on selfish internal needs, not external market needs.
+3. No one cares about your selfish desires for dreams or money; people only want to know what your business can do for them.
+4. Money chasers haven't broken free from selfishness, and their businesses often follow their own selfish needs.
+5. People vote for your business with their money.
+6. Chase money and it will elude you. However, if you ignore it and focus on what attracts money, you will draw it to yourself.
+7. Help one million people and you will be a millionaire.
+8. For money to follow “Do what you love,” your love must solve a need and you must be exceptional at it.
+9. “Do what you love” sets the stage for crowded marketplaces with depressed margins.
+10. When you have the financial resources, you can “do what you love” and not get paid for it, nor do you have to be good at it.
+11. Slowlaners feed “do what you love” with “do what you hate.” Five days of hate for two days of love.
+12. “Doing what you love” for money can endanger your love.
+13. Passion for an end goal, a why, drives Fastlane success.
+14. Having a passionate “why” can transform work into joy.
+15. “Doing what you love” usually leads to the violation of the Commandment of Need.
+16. The right road for you is one that will converge with your dreams.
+
+Chapter 31:
+1. The Commandment of Entry states that as entry barriers fall, competition rises and the road weakens.
+2. Easy access roads carry more traffic. More traffic generates higher competition, and higher competition creates lower margins for the participants.
+3. Businesses with weak entry often lack control and operate in saturated marketplaces.
+4. Exceptionalism is required to overcome weak entry barriers.
+5. Access to a business road should be a process with a toll, not an event.
+6. “Everyone” consists of the general populous and is served by the mainstream media.
+7. If everyone were wealthy, “everybody is doing it” would work. And if everyone is wealthy, then no one is wealthy.
+“Everyone is doing it” is a signal to overbought conditions and the entrance of “dumb money.”
+
+Chapeter 32:
+1. Hitchhikers relinquish control of their business to a Fastlaner.
+2. There is a difference between “good” money and “big” money. Hitchhikers can make good money while Fastlaners make big money. Sometimes legendary money.
+3. In a driver/hitchhiker relationship, the driver always retains control and the hitchhiker is at the mercy of the driver.
+4. Hitchhikers are party to someone else's Fastlane plan. Make the world your habitat of play in an organization you control.
+5. Network marketing has little to do with entrepreneurship but more to do with sales, networking, training, and motivation.
+6. Network marketing fails both the Commandments of Control and Entry, and sometimes, Need.
+7. Network marketers are soldiers in a Fastlaner's army.
+8. Network marketing is a powerful distribution system. As a Fastlaner, seek to own one, not join one.
+
+Chapter 33:
+1. Your total pool of customers determines your habitat. The larger the habitat, the greater the potential for wealth.
+2. A business can be a singles or a home-run-based business. Its strength is determined by scale, which is derived by habitat.
+3. The Fastlane wealth equation is disarmed when you violate the Commandment of Scale. Scale is achieved in reach (units sold) and/or magnitude (unit profit).
+4. The Law of Effection is the primary conduit to wealth, which can be road blocked by scale, magnitude, or source.
+5. Effection consequences trickle up to owners and producers. Breaking scale or magnitude indirectly in an uncontrolled entity is not a guarantee of wealth.
+6. To gain access to Effection, you have to break the barrier of scale or magnitude in an entity you control.
+Scale, magnitude, or source deficiencies create governors on the speed of wealth creation.
+
+Chapter 34:
+1. A business attached to your time is a job.
+2. business that earns income exclusive of your time satisfies the Commandment of Time.
+3. To satisfy the Commandment of Time, start with a business that uses a money system seedling, or introduce one.
+
+
+
+
 
 
 [by MJ Demarco](https://www.themillionairefastlane.com/)
