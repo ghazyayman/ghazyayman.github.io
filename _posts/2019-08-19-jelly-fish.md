@@ -290,6 +290,13 @@ Chapter 34:
 2. business that earns income exclusive of your time satisfies the Commandment of Time.
 3. To satisfy the Commandment of Time, start with a business that uses a money system seedling, or introduce one.
 
+Chapter 35:
+1. The best Fastlanes satisfy all five Commandments: Control, Entry, Need, Time, and Scale.
+2. Assuming a need-based premise, the Internet is the fastest interstate, because it overwhelmingly satisfies all Commandments.
+3. Innovation can be any variety of open roads: authoring, inventing, or services.
+4. Inventing success needs coupling with distribution.
+5. A singles-based business is scaled to a home-run business by intentional iteration. With iteration, scale is conquered.
+
 
 
 
