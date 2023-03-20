@@ -266,7 +266,7 @@ Chapter 31:
 7. If everyone were wealthy, “everybody is doing it” would work. And if everyone is wealthy, then no one is wealthy.
 “Everyone is doing it” is a signal to overbought conditions and the entrance of “dumb money.”
 
-Chapeter 32:
+Chapter 32:
 1. Hitchhikers relinquish control of their business to a Fastlaner.
 2. There is a difference between “good” money and “big” money. Hitchhikers can make good money while Fastlaners make big money. Sometimes legendary money.
 3. In a driver/hitchhiker relationship, the driver always retains control and the hitchhiker is at the mercy of the driver.
@@ -296,6 +296,76 @@ Chapter 35:
 3. Innovation can be any variety of open roads: authoring, inventing, or services.
 4. Inventing success needs coupling with distribution.
 5. A singles-based business is scaled to a home-run business by intentional iteration. With iteration, scale is conquered.
+
+Chapter 36:
+1. Opportunities are rarely about inventing breakthroughs, but about performance gaps, small inconveniences, and pain points.
+2. Competition should not impede your road. Competition is everywhere, and your objective should be to “do it better.”
+3. Fastlane success resides in execution, not in the idea.
+4. The world's most successful entrepreneurs didn't have a blockbuster ideas; they just took existing concepts and made them better, or exposed them to more people.
+5. Opportunity is exposed in your language and your thought processes, as well as other people's language.
+6. Failure cracks open new roads.
+7. Quitting only happens when you give up on your dream.
+
+PART 8
+Chapter 37:
+1. The Fastlane is the means to your end because dreams cost money.
+2. Conquer big goals by breaking them down to their smallest component.
+3. Daily saving reinforces your relationship with money; it is your passive system that buys freedom and another soldier added to your army.
+4. A money system isn't used to grow wealth but to grow income. Growing wealth should be left to your Fastlane road.
+5. You will struggle to build a financial empire if you are financially illiterate.
+6. “Live below your means” is relevant at any income level.
+7. For the Fastlaner, “Live below your means” means to expand your means.
+8. A financial adviser doesn't solve financial illiteracy and literacy is insurance.
+9. Financial illiteracy dilutes your control, especially when evaluating the advice of a financial adviser.
+
+Chapter 38:
+1. Speed is the transformation of ideas to execution.
+2. Most people let powerful information expire and become worthless.
+3. Successful Fastlane businesses are run multi-dimensionally, like a game of chess. One-dimensional businesses focus on price only.
+4. Execution divides winners and losers from their ideas.
+5. In business, execution is process. Ideas are events.
+6. Ideas are potential speed. Execution is actual speed.
+7. Others share your blockbuster idea. He who thinks the idea owns nothing. He who executes the idea owns everything.
+8. Real money and momentum is created when an idea (potential speed) is matched with execution (accelerator pressure).
+9. An idea is neurological flatulence. Execution makes it smell like a rose.
+
+Chapter 39:
+1. The world gives clues to the direction you should be moving.
+2. Business plans are useless because they are ideas on steroids.
+3. As soon as the world interacts with your ideas, your business plan is invalidated.
+4. The marketplace will steer you into directions that were previously unplanned for.
+5. The best business plan in the world is a track record of execution-it legitimizes the business plan.
+6. If you have a track record of execution, suddenly people will want to see your business plan.
+7. If you want your business to get funded, take action and create something that reflects tangible execution.
+8. Investors are more likely to invest in something tangible and real; not ideas dissected ad nauseam on paper.
+
+Chapter 40:
+1. Complaints are valuable insights into your customers' minds.
+2. Complaints of change are difficult to decipher and often require additional data to validate or invalidate.
+3. Complaints of expectation expose operational problems in either your business, or in your marketing strategy.
+4. Complaints of void expose unmet needs, raise the value of your product or service, and expose new revenue opportunities.
+5. Great customer service is as simple as violating your customer's low expectation in the positive.
+6. Poor service gaps are Fastlane opportunities.
+7. Satisfied customers can be human resource systems who promote your business for free.
+8. Satisfied customers have a dual residual effect: Repeat business and new business via discipleship.
+9. Your customer and their satisfaction hold the key to everything you selfishly want.
+10. Looking big but acting small sets up customer service expectation violations in the positive.
+11. Looking big can scare away potential competitors.
+
+Chapter 41:
+1. A business partnership is as important as a marriage.
+2. A good accountant and attorney will save you thousands, perhaps millions.
+3. Accountants and attorneys have the keys to your castle; make sure you trust them fully because they have the power to right or wrong you.
+4. Unmitigated trust exposes you to unmitigated risk.
+5. Unverified trust can lead to uncontrollable consequences.
+6. Your employees communicate the public's perception of your company.
+7. Fanatical customer service can overcome shortcomings, but fanatical features can't overcome poor customer service.
+8. Customer service philosophy is delivered from human interactions-not ambitious mission statements on a wall plaque in the CEO's office.
+
+Chapter 42:
+1. Commoditization occurs when you get into business based on a false premise-“I want to own a business” or “I know how to do this, so I'll start a business doing it.”
+2. If you are too busy copying or watching your competition, you're not innovating.
+3. Use your competition to exploit their weaknesses.
 
 
 
