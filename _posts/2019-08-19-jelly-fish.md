@@ -368,8 +368,4 @@ Chapter 42:
 3. Use your competition to exploit their weaknesses.
 
 
-
-
-
-
 [by MJ Demarco](https://www.themillionairefastlane.com/)
