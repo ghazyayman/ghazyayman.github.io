@@ -367,5 +367,73 @@ Chapter 42:
 2. If you are too busy copying or watching your competition, you're not innovating.
 3. Use your competition to exploit their weaknesses.
 
+Chapter 43: 
+1. Marketing and branding (the queen) is the most powerful tool in your Fastlane toolbox.
+2. Businesses survive. Brands thrive.
+3. Businesses have identity crises, brands don't. Identity crises force business owners into price commoditization.
+4. Unique Selling Propositions (USPs) are the keys to your brand and differentiate your company from the rest.
+5. People have a natural disposition to be unique and unlike everyone else.
+6. To succeed in marketing, your messages have to break above the advertising clutter, or noise.
+7. Polarization is a great above-the-noise tool if your product targets a polarized audience-usually politics, minority opinions, and even sports teams.
+8. Sex sells and always draws eyeballs.
+9. Consumers make buying decisions based on emotions before practicality.
+10. If you can arouse emotions in your audience, you will be more likely to convince them to buy.
+11. People have a natural disposition to talk about themselves. If you can incorporate interaction into your campaigns, you will have better success.
+12. To be unconventional means to first isolate and identify what is conventional, then doing the opposite, or interrupting that convention.
+13. Consumers are selfishly motivated. Always target your messages toward the predisposition of “What's in it for me?”
+14. Features are translated to benefits when you switch positions from producer to consumer, identify the feature's advantages, and extrapolate those advantages into a specific result.
+15. Price implicitly conveys value and worth.
+16. Don't allow your own perception of price direct your brand to mediocrity.
+
+Chapter 44:
+1. Tekel Syndrome sufferers are polygamist-opportunists who opportunity hop.
+2. A weak business commitment commits you to weak assets.
+3. Weak assets do not accelerate wealth.
+4. The most successful entrepreneurs lived their business and were 100% committed to it.
+5. Successful business monogamy can lead to successful business polygamy.
+
+The 40 Fastlane Guidline:
+1. Not dismiss “Get Rich Quick” as improbable.
+2. Not allow the Slowlane to bury my dreams.
+3. Not allow Slowlane prognosticators to contaminate my truth with their dogma.
+4. Not ordain the Slowlane as the plan, but let it be a part of the plan.
+5. Not sell my soul for a weekend.
+6. Not expect nor seek a chauffeur to wealth.
+7. Not trade my time for money.
+8. Not put time in control over my financial plan.
+9. Not forsake control over my financial plan.
+10. Not demote time as abundant and effervescent.
+11. Not assign faith to events, but to process.
+12. Not take advice from gurus who preach one roadmap, while getting rich using another.
+13. Not use compound interest for wealth, but for income.
+14. Not disrespect the passivity of a dollar.
+15. Not cease learning at graduation, but start it.
+16. Not impose the burdens of parasitic debt into my life.
+17. Not play on Team Consumer, but switch to Team Producer.
+18. Not dismiss the plausibility of my dreams.
+19. Not chase a path of money, but a path of need.
+20. Not fuel my motivation by love, but by passion.
+21. Not focus on my expenses, but on my income.
+22. Not pay myself last, but first.
+23. Not do what everyone does.
+24. Not trust everyone, but allow trust to be proven.
+25. Not relinquish control over my business.
+26. Not hitchhike, but seek to drive.
+27. Not operate within limited scales and in tiny habitats.
+28. Not dishonor the horsepower of my choices.
+29. Not swim as a guppy in a pool, but as a shark in the oceans.
+30. Not consume first, but produce first, and consume later.
+31. Not engage in barrier-free or entry-weak businesses.
+32. Not invest in other people's brands, but in my own.
+33. Not give credence to ideas, but to execution.
+34. Not forsake my customer for other stakeholders.
+35. Not build a business, but a brand.
+36. Not focus my marketing messages on features, but benefits.
+37. Not be a polygamist opportunist: Focus!
+38. Not engage my business like checkers, but chess.
+39. Not live above my means, but seek to expand my means.
+40. Not live without the insurance of financial literacy.
+
+
 
 [by MJ Demarco](https://www.themillionairefastlane.com/)
