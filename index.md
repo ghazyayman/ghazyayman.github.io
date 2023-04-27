@@ -20,4 +20,4 @@ I keep my head straight up to my mission. Keep grinding because it’s all about
 
 I remember a quote from Nietzche that said <i>"He who has a why to live can bear almost any how."</i> Find your why, work towards your goals and purposes. At the end of the day, I'm just a man and his will to survive *insert Rocky theme
 
-PS: Just look at my project eh? Ask me anytime.
+PS: If you need anything just let me know.
